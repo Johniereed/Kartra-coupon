@@ -32,7 +32,7 @@ If you’re signing up for Kartra for the first time, use the "SKY30" coupon to 
 
 ## Kartra FREE Trial
 
-Enter "KAR29" at checkout and enjoy [20% off](https://kartra.com/) on any Kartra plan. This deal is perfect if you want to save on Kartra’s powerful automation tools while still getting all the benefits of the platform. Plus, it includes a 30-day free trial.
+Enter "KAR29" at checkout and enjoy [20% off](https://try.kartra.com/u67pbmjpk9id-mj69wp) on any Kartra plan. This deal is perfect if you want to save on Kartra’s powerful automation tools while still getting all the benefits of the platform. Plus, it includes a 30-day free trial.
 
 **👉 What You Get:**
 
@@ -48,11 +48,11 @@ Kartra is offering a [20% discount](https://try.kartra.com/u67pbmjpk9id-mj69wp) 
 
 Whether you're just starting or growing your business, this offer helps you save while enjoying Kartra’s premium tools. So don’t miss out!
 
-[![|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcaxoqgnUTH7hjKuwEyjXxL4D8pKbKOnBbDAYU5szk_qg8bjMUzQkpZJ5iki58vLg8nklkPhnNp0cuLiZe8wr7EhkOakOCWKlHeL24j0nvhfs-fAskGXlFZsFqGiY6zUXmeCKZMKQ?key=InBFmaGxVxoaJuvk2gYHJwMv)](https://kartra.com/)
+[![|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcaxoqgnUTH7hjKuwEyjXxL4D8pKbKOnBbDAYU5szk_qg8bjMUzQkpZJ5iki58vLg8nklkPhnNp0cuLiZe8wr7EhkOakOCWKlHeL24j0nvhfs-fAskGXlFZsFqGiY6zUXmeCKZMKQ?key=InBFmaGxVxoaJuvk2gYHJwMv)](https://try.kartra.com/u67pbmjpk9id-mj69wp)
 
 ## Save Up to 22% with Annual Plans
 
-If you choose an annual plan instead of monthly billing, you can save up to 22% on your Kartra subscription. This means you get up to [5 months free](https://kartra.com/) compared to paying month-to-month.
+If you choose an annual plan instead of monthly billing, you can save up to 22% on your Kartra subscription. This means you get up to [5 months free](https://try.kartra.com/u67pbmjpk9id-mj69wp) compared to paying month-to-month.
 
 **👉 What You Get:**
 
