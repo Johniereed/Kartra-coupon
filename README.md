@@ -1,6 +1,6 @@
 # Kartra Coupon Codes March 2025 |  Get 50% Promo Discount
 
-If you’re looking to save money on Kartra, these [Kartra coupons](https://try.kartra.com/u67pbmjpk9id-mj69wp) and deals will help you get the best discount.
+If you’re looking to save money on Kartra, these [Kartra coupons](https://try.kartra.com/u67pbmjpk9id-mj69wp) and deals will help you get **50% discount** in addition to that, I will also show you how you can get a **30-day free trial on Kartra**.
 
 Kartra offers premium tools for online businesses, and with these coupons, you can get major savings on your subscription.
 
